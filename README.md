@@ -35,7 +35,7 @@ ______
    ![s](https://blinkies.cafe/b/display/0253-rainbowheartclownballoons.gif)
 
 
-[@Gasfuzbj](https://github.com/Gasfuzbj) , [@tigerspaws](https://github.com/tigerspaws) , [@SOURSWITCHBLADE](https://github.com/SOURSWITCHBLADE) , [@STARSAREFADINGAWAY](https://github.com/STARSAREFADINGAWAY) - when your circle small but yall crazy! ! !
+[@Gasfuzbj](https://github.com/Gasfuzbj) , [@tigerspaws](https://github.com/tigerspaws) , [@SOURSWITCHBLADE](https://github.com/SOURSWITCHBLADE) , [@hinter-cool-ofc](https://github.com/hinter-cool-ofc) [@STARSAREFADINGAWAY](https://github.com/STARSAREFADINGAWAY) - when your circle small but yall crazy! ! !
 
 ![pony-town-i ate cake and katherine-dniuf-boop-lie-blinking-padded-4x (2)](https://github.com/user-attachments/assets/0432d44e-4500-412d-a5a9-3e9e6a2f7217)
 
