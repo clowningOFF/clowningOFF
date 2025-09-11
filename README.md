@@ -5,7 +5,13 @@
 <p align="center">
 
 <p align="center">
-<br> ${\textsf{\color{#8a2f0f}  I wanna grab both of your shoulders and shake, baby  }}$
+<br> ${\textsf{\color{#8a2f0f}I wanna grab both of your shoulders and shake, baby} }$
 <p align="center">
   
-$${\color{#8a2f0f}Snap \space \color{#67260f}Out \space \color{#5e2612}Of \space \color{#462316}It \space \color{#751300}(Snap \space \color{#751300}Out \space \color{#751300}Of \space \color{#751300}It)}$$
+$${**\color{#8a2f0f}Snap \space \color{#67260f}Out \space \color{#5e2612}Of \space \color{#462316}It \space \color{#751300}(Snap \space \color{#751300}Out \space \color{#751300}Of \space \color{#751300}It)**}$$
+
+<p align="center">
+<img width="200" height="200" alt="Mini Chuuya 🎩🍷-no-bg-preview (carve photos)" src="https://github.com/user-attachments/assets/d751e134-ed33-4f66-a209-d3108ac90bba" />
+<p align="center">
+
+<img width="1000" height="80" alt="﹝back﹞-no-bg-preview (carve photos)" src="https://github.com/user-attachments/assets/47f2b815-4173-4d78-99f0-7c17e84cd9a2" />
