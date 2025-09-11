@@ -1,4 +1,4 @@
-<img width="1000" height="147" alt="೨　   　𓏵  　　 ౿-no-bg-preview (carve photos)" src="https://github.com/user-attachments/assets/af60e321-bb6f-4558-bf41-bfdf73161112" />
+<img width="1000" height="80" alt="೨　   　𓏵  　　 ౿-no-bg-preview (carve photos)" src="https://github.com/user-attachments/assets/af60e321-bb6f-4558-bf41-bfdf73161112" />
 
 <p align="center">
  <img width="700" height="700" alt="IMG_6473" src="https://github.com/user-attachments/assets/d05c1cc7-3938-463d-8703-a55ec3fc0384" />
