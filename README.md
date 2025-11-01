@@ -21,7 +21,7 @@ $${**\color{#8a2f0f}Snap \space \color{#67260f}Out \space \color{#5e2612}Of \spa
 <p align="center">
 
 <p align="left">
-<img width="250" height="250" alt="IMG_7451" src="https://github.com/user-attachments/assets/ce9be6a0-40ed-4c5f-b1e7-23c97a3e07c7" />  <p align="right"><img width="250" height="250" alt="IMG_7425" src="https://github.com/user-attachments/assets/b3677179-7620-4872-ae3d-e84cff95309e" />
+  <p align="right"><img width="250" height="250" alt="IMG_7425" src="https://github.com/user-attachments/assets/b3677179-7620-4872-ae3d-e84cff95309e" />
 
 <p align="left">
 <img width="250" height="250" alt="IMG_7453" src="https://github.com/user-attachments/assets/00446081-59a1-45d5-9350-440e2f510da6" />   <p align="right"><img width="250" height="250" alt="IMG_7452" src="https://github.com/user-attachments/assets/fc8c620a-dfac-4be4-b6e4-4f3e4950aa34" />
