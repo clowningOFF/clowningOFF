@@ -1,3 +1,8 @@
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=clowningOFF&color=CF5447&base=1500&label=Say+Cheese)
+
+
 <img width="1000" height="80" alt="೨　   　𓏵  　　 ౿-no-bg-preview (carve photos)" src="https://github.com/user-attachments/assets/af60e321-bb6f-4558-bf41-bfdf73161112" />
 
 <p align="center">
